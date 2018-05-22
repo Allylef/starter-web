@@ -14,6 +14,8 @@ new pull rqest
 
 & here
 
+all rights erserved
+
 more new text 
 new reabse less
 new header added 
